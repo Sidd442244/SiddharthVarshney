@@ -88,8 +88,8 @@ Topics covered:
 
 ## Connect With Me
 
-Email: siddharth.zx@gmail.com 
-LinkedIn: https://www.linkedin.com/in/siddharth-varshney-385a42244  
+- Email: siddharth.zx@gmail.com 
+- LinkedIn: https://www.linkedin.com/in/siddharth-varshney-385a42244  
 
 ---
 
